@@ -1,2 +1,2 @@
 黑料网，免费吃瓜，独家爆料
-https://hl27.co
+https://hl31.co
