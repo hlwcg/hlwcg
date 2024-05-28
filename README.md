@@ -1,5 +1,5 @@
 黑料网，免费吃瓜，独家爆料
-最新入口，https://hlw04.com
-App下载，https://d990c.7bb1bbbb6.com
+最新入口，https://hlw05.com
+App下载，https://8116a03.ugejl.net
 永久地址，https://18hlw.com
 永久地址，https://155.fun
