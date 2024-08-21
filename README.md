@@ -1,6 +1,6 @@
-黑料网，免费吃瓜，独家爆料(8/9更)
+黑料网，免费吃瓜，独家爆料(8/21更)
 
-最新入口，https://ihlw19.com
+最新入口，https://ihlw20.com
 
 App下载，https://8774.8mxfjl.com
 
