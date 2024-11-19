@@ -1,6 +1,6 @@
 黑料网，免费吃瓜，独家爆料(11/1更)
 
-最新入口，https://ihlw37.com
+最新入口，https://ihlw38.com
 
 App下载，https://30e4.cstqervj.com
 
