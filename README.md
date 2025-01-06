@@ -2,7 +2,7 @@
 
 最新入口，https://www.hlwn8.com
 
-App下载，https://cbvd33.cstqervj.com
+App下载，https://3f6e0.wyhtgeft.com
 
 永久地址，https://18hlw.com
 
