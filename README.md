@@ -2,7 +2,7 @@
 
 最新入口，https://hlwn27.com
 
-App下载，https://3f6e0.wyhtgeft.com
+App下载，https://4fyb.leqoqzr.xyz
 
 永久地址，https://18hlw.com
 
