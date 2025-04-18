@@ -1,6 +1,6 @@
-黑料网，免费吃瓜，独家爆料(4/14更)
+黑料网，免费吃瓜，独家爆料(4/18更)
 
-最新入口，https://hlwn30.com
+最新入口，https://hlwn31.com
 
 App下载，https://4fyb.jvamyyk.xyz
 
